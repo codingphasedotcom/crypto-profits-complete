@@ -1,1 +1,2 @@
-# myPortfolio2018
+# CRYPTO PROFITS COMPLETE
+Part of a course
